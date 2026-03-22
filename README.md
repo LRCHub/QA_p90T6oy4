@@ -1,4 +1,4 @@
-# 米津玄師 – 米津玄師 - WOODEN DOLL , Kenshi Yonezu
+# 米津玄師 – WOODEN DOLL
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
